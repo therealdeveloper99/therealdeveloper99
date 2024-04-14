@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @therealdeveloper99
+- 👀 I’m interested in developing
+- 🌱 I’m currently learning development
+- 💞️ I’m looking to collaborate on developing development
+- 📫 How to reach me don't
+- 😄 Pronouns: idk
+- ⚡ Fun fact: no fun
